@@ -15,6 +15,9 @@
 
 ![1](https://github.com/olivierNiyitanga/assigment2/assets/152339222/3e45d0df-6cd3-4eb3-b1a7-c5558752dcc1)
 
+![9](https://github.com/olivierNiyitanga/assigment2/assets/152339222/8fb96984-c410-4927-bb1a-77dc4e6aeefb)
+
+
 
 
 
